@@ -1,0 +1,19 @@
+---
+layout: post
+title:  "Om dumheten av byteshandel med det som inte behöver bytas"
+date:   2017-06-10 13:14:18 +0100
+---
+# Socialdemokratins framtid
+För att kunna prata om socialdemokratin som något större än det enskilda parti som just nu innehar regeringsmakten i Sverige, kan det vara lämpligt att istället prata om Socialdemokration som något mer abstrakt. den del av vänstern som är beredd att gå högerut till den grad att de har möjlighet att vinna val. Även om en socialdemokratisk ideolog kan förorda exempelvis en tobinskatt, så kommer hen inte att gå till val på detta, då det möjligen minskar chanserna att få igenom en vänsterpolitik. Socialdemokraterna blir således den potentiellt regerande grenen av den rörelse som på höger-vänster skalan ligger till vänster. 
+
+Och vad är då höger-vänster? Nedan kommer jag utgå från grundtesen att höger-vänsterkonflikten på ett grundläggande plan är en konflikt mellan en mikroskopisk och en makroskopisk maxim för samhället. Den liberala idétraditionen bjuder att det viktigaste för ett samhälle är att upprätthålla en samling rättigheter för individen - det mikroskopiska individuella perpektivet. Den socialistiska diton hävdar istället att det viktigaste för staten är att upprätthålla det goda samhället - det makroskopiska kollektiva perspekivet (mer om det goda samhället senare). Dessa perspektiv går inte alltför sällan hand i hand, men gällande många frågor finns också konflikter.
+
+Om man tänker på detta sätt, att socialdemokratin är den rörelse som bygger på idén om det goda samhället och där man kompromissar för att vinna val, ger man resonemanget en begränsning om både socialdemokraternas idéestoff och kommunikationen av detta. Idéern måste nämligen kunna omfamnas av nära hälften av befolkningen. Eftersom det traditionella organiserade arbetarkollektivet som utgjorde basen för arbetarrörelsen under dess första decennier nästan är borta krävs nya koalitioner.
+
+## Det goda samhället
+För att förstå vad ett gott samhälle är tror jag att man behöver en analys som spänner över fler områden än vad den politiska diskussionen oftast gör. I centrum står den varelse vi kallar Människa. Människan påverkas av sin individuella psykologi, sin familj, sina vänner och nära relationer. Hon påverkas av sitt arbete eller brist på detsamma, sin fritid, sin socioekonomiska status, samhällets utveckling och andra samhällens utveckling. Denna förståelse bör således spänna över psykologi, socialpsykologi, sociologi, statsvetenskap, ekonomi. Även om det i slutändan kan vara bra att det politiska lämnar många saker utanför sitt mandat så bör politikens grundidéer formuleras med hjälp av hela analysen.
+
+Jag tror att en bra utgångspunkt för att hitta en kollektiv maxim är det utilitaristiska perspektivet. Att maximera den kollektiva lyckan. Dock tror jag att denna analys blir platt och för abstrakt om man inte fyller den med mer innehåll om vad lycka är. I boken *Flourish* argumenterar Martin Seligman utifrån begreppet **blomstra**, för att vi bör lämna den enkla hedoniska lyckan därhän till förmån för ett mer komplext lyckobegrepp som tar sin utgångspunkt i människans hela situation. Han menar att människor är väldigt olika i sättet som de kan blomstra på. För någon kan det vara att göra karriär och uppnå framgångsrelaterade mål. För en annan kan det vara att känna mening genom gemenskap osv. I grunden handlar det om att det går att jobba mot ett sammanhållet om en komplext begrepp, blomstra, som pekar mot det vi vill att individerna ska göra i ett samhälle. Målet för samhället är att dess individer ska blomstra i så hög grad som möjligt. Även om detta begrepp i grunden är individuellt är det s
+
+## Den politiska sfärens storlek
+Om kärnan i vänstern är idén om det goda samhället
